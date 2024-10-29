@@ -1,1 +1,1 @@
-# Joshua1-9
+# Joshua1:9
